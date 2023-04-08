@@ -6,7 +6,7 @@
 
 ✅ SOLD: Rainbow Dino Bear for 45.5 million diamonds
 
-✅ SOLD: Storm Dominus for 250 million
+✅ SOLD: Storm Dominus for 250 million diamonds
 
 ✅ PURCHASED: Marshmallow Agony for 2.75 million diamonds
 
