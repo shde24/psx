@@ -17,3 +17,15 @@
 ✅ SOLD: Golden Error Axolotl for 10 million diamonds
 
 ✅ PURCHASED: Error Axolotl for 40 million diamonds
+
+----------------------------------------------------
+
+✅ SOLD: Marshmallow Agony for 1 million diamonds
+
+✅ SOLD: Dark Matter Error Axolotl for 20 million diamonds
+
+✅ PURCHASED: Dark Matter Clover Fairy for 15 million diamonds
+
+✅ SOLD: Dominus Empyreus for 3.5 million diamonds
+
+---------------------------------------------------------------
